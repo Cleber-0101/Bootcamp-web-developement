@@ -1,1 +1,0 @@
-Uma das principais instituições de treinamento presencial em programação de Londres e agora online. Este curso foi recentemente atualizado para estar em sintonia com as mais recentes tendências tecnológicas de 2023
